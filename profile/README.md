@@ -27,4 +27,4 @@
 
 [YouTube](https://www.youtube.com/@Cossacks_In_IT) | [Patreon](https://www.patreon.com/user?u=99188087) | [Донателло](https://donatello.to/cossacks_in_it)
 
-## Долучайтеся та будьте частиною команди "Козаки в АЙТІ"!
+**Будьте частиною команди `"Козаки в АЙТІ"`!**
